@@ -12,4 +12,4 @@ Formação
 🐱‍🚀Cursando Analise e Densenvolviento de Sistemas.
 
 Experiencia
-✔Infelizmente ate o momento não obtive a oportunidade de ingressar no mercado de trabalho de tecnologia. Pórem, estou em busca de novas aventuras,  projetos e trabalhos e experiência dentro do mercado, para assim ajudar a empresa no qual irei trabalhar como ajudar a minha experiencia pessoal.
+✔Infelizmente ate o momento não obtive a oportunidade de ingressar no mercado de trabalho de tecnologia. Porém, estou em busca de novas aventuras,  projetos e trabalhos e experiência dentro do mercado, para assim ajudar a empresa no qual irei trabalhar como ajudar a minha experiencia pessoal.
